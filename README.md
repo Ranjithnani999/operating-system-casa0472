@@ -1,1 +1,0 @@
-# operating-system-casa0472
